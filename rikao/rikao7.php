@@ -1,0 +1,1 @@
+rikao7.php
